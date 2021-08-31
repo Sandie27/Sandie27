@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there
 
 ### 🔭 I’m currently working on a lot of projects
 ### 🌱 I’m currently learning a lot of stuff
